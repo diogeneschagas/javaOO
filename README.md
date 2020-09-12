@@ -5,4 +5,4 @@ Após completar a "Jornada dos Primeiros Passos" que fiz com o intuito de melhor
 Então, sinta-se à vontade para "fuçar" e até dar um **feedback** através de mensagens diretas no meu [perfil do LinkedIn](https://www.linkedin.com/in/diogeneschagas/), que estarei aberto para receber sugestões de todos! :sunglasses: <br>
 <br>
 
-PS: 🛠 Repositório em construção... 🧰
+🛠 Repositório em construção... 🧰
