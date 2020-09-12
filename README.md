@@ -6,5 +6,3 @@ Então, sinta-se à vontade para "fuçar" e até dar um **feedback** através de
 <br>
 
 PS: 🛠 Repositório em construção... 🧰
-
-Feedback? Envie uma mensagem no meu [perfil do LinkedIn](https://www.linkedin.com/in/diogeneschagas/) 😎
